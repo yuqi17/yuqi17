@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yuqi17
-- 👀 I’m interested in earning and spend money
+- 👀 I’m interested in earning and spending money
 - 🌱 I’m currently learning how to manage deposit.
 - 💞️ I’m looking to collaborate on making money for kind people.
 - 📫 How to reach me ...
